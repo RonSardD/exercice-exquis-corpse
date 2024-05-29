@@ -59,6 +59,9 @@ Un jour peut-être, il enseignera l'art du conte et du développement web à ses
 En attendant, il apprend les lois du Javascript et les joies des flexbox.
 
 # THE END
+Dans les vastes étendues d'Eurasie, le loup **Lupus** et la louve **Luna** rencontrèrent une meute dirigée par un sage loup nommé **Gris**. Leur alliance, semblable à celle entre *Light* et *L* dans "*Death Note*", les mena à travers de nombreux dangers, établissant un héritage de force et de résilience.
+
+
 
 
 
