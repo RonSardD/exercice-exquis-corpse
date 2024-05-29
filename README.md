@@ -52,6 +52,8 @@ Ronsard, épuisé d'avoir écrit un livre, décida de prendre un repos bien mér
 
 Avec l'argent de sa publication, il parti s'installer dans les Baléares, un lieu idéal pour les trois jours de remote hebdomadaires.
 
+Dans les vastes étendues d'Eurasie, le loup **Lupus** et la louve **Luna** rencontrèrent une meute dirigée par un sage loup nommé **Gris**. Leur alliance, semblable à celle entre *Light* et *L* dans "*Death Note*", les mena à travers de nombreux dangers, établissant un héritage de force et de résilience.
+
 
 
 
