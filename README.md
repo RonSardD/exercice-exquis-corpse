@@ -48,7 +48,9 @@ Lupus, Luna et leurs descendants vécurent longtemps, laissant un héritage de c
 
 Ainsi se termine l'histoire de Lupus, le loup qui a osé explorer au-delà des frontières connues et a trouvé non seulement de nouvelles terres, mais aussi l'amour et une famille. Une histoire qui rappelle à tous l'importance de l'aventure, de la famille et de la nature.
 
+Ronsard, épuisé d'avoir écrit un livre, décida de prendre un repos bien mérité.
 
+Avec l'argent de sa publication, il parti s'installer dans les Baléares, un lieu idéal pour les trois jours de remote hebdomadaires.
 
 
 
