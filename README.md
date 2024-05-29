@@ -52,7 +52,13 @@ Ronsard, épuisé d'avoir écrit un livre, décida de prendre un repos bien mér
 
 Avec l'argent de sa publication, il parti s'installer dans les Baléares, un lieu idéal pour les trois jours de remote hebdomadaires.
 
+Le loup, malgré tout le travail déjà fourni, décida de devenir développeur web chez BeCode. Sa soif de connaissance ne sera jamais satisfaite !
 
+Un jour peut-être, il enseignera l'art du conte et du développement web à ses enfants, et ses petits-enfants, et ses arrières petits-enfants. 
+
+En attendant, il apprend les lois du Javascript et les joies des flexbox.
+
+# THE END
 
 
 
