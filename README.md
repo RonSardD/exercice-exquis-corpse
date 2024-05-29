@@ -6,13 +6,13 @@ Il était une fois, dans les vastes étendues des plaines et forêts d'Eurasie, 
 
 ## Le Voyage de Lupus
 
-[![image](https://www.trekkingetvoyage.com/wp-content/uploads/2017/02/NEW-COUV-Article-1-1.jpg)](https://www.trekkingetvoyage.com/loup-entre-fascination-inquietude/)
+[![image](https://img.freepik.com/vecteurs-premium/loup-voyageant-sac-dos-animal-dessin-anime-mignon-ayant-randonnee-aventure-voyage-camping-voyage-vecteur-illustration-isole-fond-blanc_178650-16536.jpg)
 
-Notre histoire commence avec un jeune loup nommé Lupus. Né au cœur d'une forêt dense, Lupus faisait partie d'une meute dirigée par ses parents, deux loups robustes et sages. La meute vivait en harmonie avec la nature, chassant les cerfs et les lapins pour se nourrir et s'abritant dans les cavernes des montagnes pendant les hivers rigoureux.
+Notre histoire commence avec un jeune loup nommé Louis. Né au cœur d'une forêt dense, Louis faisait partie d'une meute dirigée par ses parents, deux loups robustes et belliqueux. La meute vivait en harmonie avec la nature, chassant les cerfs et les lapins pour se nourrir et s'abritant dans les cavernes des montagnes pendant les hivers rigoureux.
 
-Lupus était curieux et aventureux. Depuis son plus jeune âge, il rêvait de découvrir ce qui se trouvait au-delà de la forêt. Il écoutait avec fascination les histoires des anciens loups sur les vastes prairies, les grandes rivières et les montagnes enneigées.
+Louis était curieux et aventureux. Depuis son plus jeune âge, il rêvait de découvrir ce qui se trouvait au-delà de la forêt. Il écoutait avec fascination les histoires des anciens loups sur les vastes prairies, les grandes rivières et les montagnes enneigées. Sa faim infatigable pour les cochons et les grands mères ne trouvait pas satisfaction.
 
-Un jour, alors qu'il avait atteint l'âge adulte, Lupus décida de partir à l'aventure. Avec la bénédiction de ses parents et des membres de sa meute, il quitta le territoire familial, déterminé à découvrir les merveilles du monde extérieur.
+Un jour, alors qu'il avait atteint l'âge adulte, Louis décida de partir à l'aventure. Avec la bénédiction de ses parents et des membres de sa meute, il quitta le territoire familial, déterminé à découvrir les merveilles du monde extérieur. Son premier arrêt, **Les grandes prairies**
 
 ## La Rencontre avec l'Inconnu
 
